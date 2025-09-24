@@ -49,6 +49,6 @@ J’aime résoudre des problèmes complexes en écrivant un code **propre, maint
 
 ## 📫 Me contacter  
 - **GitHub** : merai-aziz  
-- **Email** : [ton-email-ici]  
+- **Email** : [meraiaziz20120@gmail.com]  
 
 🚀 Toujours ouvert à de nouvelles collaborations et projets innovants !  
